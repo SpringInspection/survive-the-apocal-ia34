@@ -1,4 +1,4 @@
-
+3008 Scripts instant offers the most advanced 3008 Script, with auto-sell and one-hit kill. Perfect for dominating any match.
 
 
 
